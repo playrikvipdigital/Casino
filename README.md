@@ -1,6 +1,7 @@
-# Casino
-123B là sân chơi nổi đình nổi đám trong lĩnh vực giải trí, cá cược trực tuyến hiện nay. 123B cung cấp các loại hình trò chơi hấp dẫn như: Xổ số, Thể thao, Casino, bắn cá, nổ hũ…  Website: https://123b.games/  #123b #123bcasino #nhacai123b #dangnhap123b #dangky123b #linkvao123b #taiapp123b 
-https://t.me/s/games123b
-https://www.tiktok.com/@123bgamess
-https://www.facebook.com/123bgames
-https://x.com/123bgames
+Rikvip là một trong những địa chỉ cá cược trực tuyến lâu đời nhất và nhận được đánh giá tích cực từ cộng đồng người chơi. Với nhiều ưu điểm tuyệt vời, cung cấp hàng loạt tựa game đa dạng, cổng game Rikvip đang trở thành điểm đến hàng đầu.
+Thông tin liên hệ:
+Địa chỉ: 143/11E Ung Văn Khiêm, Phường 25, Bình Thạnh, Hồ Chí Minh, Việt Nam
+Email: playrikvipdigital@gmail.com
+SĐT: 0333754359
+Website: https://playrikvip.digital/
+#rikvip #dangkyrikvip #dangnhaprikvip #taiapprikvip #linkvaorikvip #playrikvipdigital
